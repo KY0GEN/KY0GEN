@@ -1,7 +1,9 @@
 <p align="center">
+  REMEMBER THE NAME OF THE FUTURE PONYKAGE @KY0GEN!!!!!
+<p align="center">
 <img src="https://file.garden/aKF9NNoKkQpWXJI7/Untitled16_20251215223948.png" width="300" height="300" />
   <p align="center">
-${\color{blue}ATABOOK‎ ‎ ‎ / ‎ ‎ ‎ RENTRY }$
+<a href="https://6fu.atabook.org/" target="_blank">ATABOOK</a>  ‎ ‎ 踊 ‎ ‎ ‎<a href="https://rentry.co/breastfeeding" target="_blank">RENTRY</a>
 <p align="center">
 <img src="https://file.garden/aKF9NNoKkQpWXJI7/IMG_20251215_224158.png" width="50" height="50" /> ${\color{blue}MY‎ TO‎ -‎ DO‎ LIST }$ <img src="https://file.garden/aKF9NNoKkQpWXJI7/Untitled17_20251215224103.png" width="50" height="50" />
 <p align="center">
