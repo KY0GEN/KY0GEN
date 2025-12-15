@@ -1,9 +1,7 @@
 <p align="center">
-⬇️ HELP ME IN MY JOURNEY 2 GET ME UNBLOCKED BY 50% OF PONYTOWNS PLAYERBASE ⬇️
-<p align="center">
-<img src="https://file.garden/aKF9NNoKkQpWXJI7/Untitled2_20251021235405.png" width="400" height="150" />
-<p align="center">
-<a href="https://rentry.co/morrigan" target="_blank">rentry</a> | <a href="https://rentry.co/breastfeeding" target="_blank">rentry jr. </a> | <a href="https://6fu.atabook.org/" target="_blank">atabook</a>
+<img src="https://file.garden/aKF9NNoKkQpWXJI7/__merry_ado_and_1_more_drawn_by_terayama_terra_yama_8383__b55a831be1dc46cc7d1fb1ebd10a4411.jpg" width="400" height="400" />
+  <p align="center">
+$${\color{darkblue}ATABOOK † INFO}$$
 
 <!--
 **KY0GEN/KY0GEN** is a ✨ _special_ ✨ repositoryrigh because its `README.md` (this file) appears on your GitHub profile.
