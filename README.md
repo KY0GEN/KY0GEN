@@ -1,7 +1,9 @@
 <p align="center">
-<img src="https://file.garden/aKF9NNoKkQpWXJI7/__merry_ado_and_1_more_drawn_by_terayama_terra_yama_8383__b55a831be1dc46cc7d1fb1ebd10a4411.jpg" width="400" height="400" />
+<img src="https://file.garden/aKF9NNoKkQpWXJI7/Untitled16_20251215223948.png" width="300" height="300" />
   <p align="center">
-$${\color{darkblue}ATABOOK † INFO}$$
+${\color{blue}ATABOOK‎ ‎ ‎ / ‎ ‎ ‎ RENTRY }$
+<p align="center">
+<img src="https://file.garden/aKF9NNoKkQpWXJI7/IMG_20251215_224158.png" width="50" height="50" /> ${\color{blue}MY‎ TO‎ -‎ DO‎ LIST }$ <img src="https://file.garden/aKF9NNoKkQpWXJI7/Untitled17_20251215224103.png" width="50" height="50" />
 
 <!--
 **KY0GEN/KY0GEN** is a ✨ _special_ ✨ repositoryrigh because its `README.md` (this file) appears on your GitHub profile.
