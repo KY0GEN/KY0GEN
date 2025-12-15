@@ -4,7 +4,10 @@
 ${\color{blue}ATABOOK‎ ‎ ‎ / ‎ ‎ ‎ RENTRY }$
 <p align="center">
 <img src="https://file.garden/aKF9NNoKkQpWXJI7/IMG_20251215_224158.png" width="50" height="50" /> ${\color{blue}MY‎ TO‎ -‎ DO‎ LIST }$ <img src="https://file.garden/aKF9NNoKkQpWXJI7/Untitled17_20251215224103.png" width="50" height="50" />
-
+<p align="center">
+  <a href="https://github.com/afterpain" target="_blank">TISSUE</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/reiningcloud" target="_blank">JUNE</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/httpsfork" target="_blank">LORELEI</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/consquence" target="_blank">AO</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/enmitye" target="_blank">KEMI</a>
+  <p align="center">
+    SIGN ATA TO HELP ME GET UNBLOCKED BY 50% OF PONYTOWN'S PLAYERBASE
 <!--
 **KY0GEN/KY0GEN** is a ✨ _special_ ✨ repositoryrigh because its `README.md` (this file) appears on your GitHub profile.
 
