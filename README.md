@@ -1,4 +1,6 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=KY0GEN&label=BODY+COUNT&base=69420034067)
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=KY0GEN&label=BODY+COUNT&base=69420034067)
 <p align="center">
   REMEMBER THE NAME OF THE FUTURE PONYKAGE @KY0GEN!!!!!
 <p align="center">
