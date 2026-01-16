@@ -1,11 +1,10 @@
 <div align="left">
   
-<img src="https://file.garden/aKF9NNoKkQpWXJI7/Untitled5_20260116234544.png" width="250" align="left"> ![](https://komarev.com/ghpvc/?username=KY0GEN&label=TIME&base=6677)
-
+<img src="https://file.garden/aKF9NNoKkQpWXJI7/Untitled5_20260116234544.png" width="250" align="left"> ![](https://komarev.com/ghpvc/?username=KY0GEN&label=NET+WORTH&color=red&style=plastic&base=6677)
 
 <a href="https://6fu.atabook.org/" target="_blank">ATABOOK</a>  ‎ ‎ 踊 ‎ ‎ ‎<a href="https://rentry.co/breastfeeding" target="_blank">RENTRY</a>
 
-<img src="https://file.garden/aKF9NNoKkQpWXJI7/IMG_20251215_224158.png" width="50" height="50" /> ${\color{blue}MY‎ TO‎ -‎ DO‎ LIST }$ <img src="https://file.garden/aKF9NNoKkQpWXJI7/Untitled17_20251215224103.png" width="50" height="50" />
+<img src="https://file.garden/aKF9NNoKkQpWXJI7/IMG_20251215_224158.png" width="50" height="50" /> ${\color{red}MY‎ TO‎ -‎ DO‎ LIST }$ <img src="https://file.garden/aKF9NNoKkQpWXJI7/Untitled17_20251215224103.png" width="50" height="50" />
 
   <a href="https://github.com/afterpain" target="_blank">TISSUE</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/reiningcloud" target="_blank">JUNE</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/httpsfork" target="_blank">LORELEI</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/consquence" target="_blank">AO</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/enmitye" target="_blank">KEMI</a>
 <!--
