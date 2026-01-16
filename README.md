@@ -1,6 +1,6 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=KY0GEN&label=NET+WORTH&color=dc2027&style=plastic&base=6677)
+![](https://komarev.com/ghpvc/?username=KY0GEN&label=NET+WORTH&color=dc2027&style=plastic&base=16667)
 
 <a href="https://6fu.atabook.org/" target="_blank">ATABOOK</a>  ‎ ‎ 踊 ‎ ‎ ‎<a href="https://rentry.co/breastfeeding" target="_blank">RENTRY</a>
 
