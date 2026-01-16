@@ -7,8 +7,8 @@
 <img src="https://file.garden/aKF9NNoKkQpWXJI7/arlecchino-genshin-impact.gif" height=" 130" width="350" align="center">
 
 
-
-${\color{#dc2027}MY‎ HAREM }$ 
+<p align="center">
+MY‎ HAREM
 
   <a href="https://github.com/afterpain" target="_blank">TISSUE</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/reiningcloud" 
   target="_blank">JUNE</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/httpsfork" target="_blank">LORELEI</a>
