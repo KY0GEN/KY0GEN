@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=KY0GEN&label=NET+WORTH&color=dc2027&style=plastic&base=16667)
 
-<a href="https://6fu.atabook.org/" target="_blank">ATABOOK</a>  ‎ ‎ 踊 ‎ ‎ ‎<a href="https://rentry.co/breastfeeding" target="_blank">RENTRY</a>  ‎ ‎ 愛 ‎ ‎ ‎<a href="https://rentry.co/achestance" target="_blank">MATCH</a>
+<a href="https://6fu.atabook.org/" target="_blank">ATABOOK</a>  ‎ ‎ 踊 ‎ ‎ ‎<a href="https://rentry.co/breastfeeding" target="_blank">RENTRY</a>  ‎ ‎ 愛 ‎ ‎ ‎<a href="https://rentry.co/achestance" target="_blank">MATCH</a>  ‎ ‎ 愛 ‎ ‎ ‎<a href="https://guns.lol/columbina" target="_blank">GUNS.LOL</a>
 
 <img src="https://file.garden/aKF9NNoKkQpWXJI7/arlecchino-genshin-impact.gif" height=" 130" width="350" align="center">
 
