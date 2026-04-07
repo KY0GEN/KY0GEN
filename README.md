@@ -4,17 +4,18 @@
 
 <a href="https://6fu.atabook.org/" target="_blank">ATABOOK</a>  ‎ ‎ 踊 ‎ ‎ ‎<a href="https://rentry.co/breastfeeding" target="_blank">RENTRY</a>  ‎ ‎ 愛 ‎ ‎ ‎<a href="https://rentry.co/achestance" target="_blank">MATCH</a>  ‎ ‎ 愛 ‎ ‎ ‎<a href="https://guns.lol/columbina" target="_blank">GUNS.LOL</a>
 
-<img src="https://file.garden/aKF9NNoKkQpWXJI7/arlecchino-genshin-impact.gif" height=" 130" width="350" align="center">
+<img src="https://file.garden/aKF9NNoKkQpWXJI7/Screenshot_2026-04-04-23-44-09-19_572064f74bd5f9fa804b05334aa4f912.jpg" height="350" align="center">
 
 
 <p align="center">
+  
 MY‎ HAREM
 
-  <a href="https://github.com/afterpain" target="_blank">TISSUE</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/reiningcloud" 
-  target="_blank">JUNE</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/httpsfork" target="_blank">LORELEI</a>
+  <a href="https://github.com/acherswan" target="_blank">MEI ♡</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/afterpain" 
+  target="_blank">TISSUE</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/reiningcloud" target="_blank">JUNE</a>
 
   
-<a href="https://github.com/consquence" target="_blank">AO</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/enmitye" target="_blank">KEMI</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/acherswan" target="_blank">MEI</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/allornutting" target="_blank">JOKER</a>
+<a href="https://github.com/conciliate" target="_blank">AO</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/enmitye" target="_blank">KEMI</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/httpsfork" target="_blank">FORK</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/allornutting" target="_blank">JOKER</a>
 
 SIGN MY ATA TO GET ME UNBLOCKED BY 50% OF PONYTOWN'S PLAYERBASE
 <!--
