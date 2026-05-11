@@ -9,13 +9,9 @@
 
 <p align="center">
   
-MY‎ HAREM
+MY‎ GF
 
-  <a href="https://github.com/acherswan" target="_blank">MEI ♡</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/reiningcloud" 
-  target="_blank">JUNE</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/conciliate" target="_blank">AO</a>
-
-  
-‎ ‎ ‎ ‎ <a href="https://github.com/enmitye" target="_blank">KEMI</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/httpsfork" target="_blank">FORK</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/allornutting" target="_blank">JOKER</a>
+  <a href="https://github.com/acherswan" target="_blank">MEI ♡</a>‎ ‎ ‎ ‎ ‎ ‎ 
 
 all da allegations about me are 100% FACTUAL. thank u for da publicity i do indeed hate m######
 <!--
