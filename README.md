@@ -17,7 +17,7 @@ MY‎ HAREM
   
 ‎ ‎ ‎ ‎ <a href="https://github.com/enmitye" target="_blank">KEMI</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/httpsfork" target="_blank">FORK</a>‎ ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/allornutting" target="_blank">JOKER</a>
 
-SIGN MY ATA TO GET ME UNBLOCKED BY 50% OF PONYTOWN'S PLAYERBASE
+all da allegations about me are 100% FACTUAL. thank u for da publicity i do indeed hate m######
 <!--
 **KY0GEN/KY0GEN** is a ✨ _special_ ✨ repositoryrigh because its `README.md` (this file) appears on your GitHub profile.
 
