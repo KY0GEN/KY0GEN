@@ -13,7 +13,7 @@ MY‎ GF
 
   <a href="https://github.com/acherswan" target="_blank">MEI ♡</a>‎ ‎ ‎ ‎ ‎ ‎ 
 
-all da allegations about me are 100% FACTUAL. thank u for da publicity i do indeed hate m######
+all da allegations about me are 100% FACTUAL. https://rentry.co/yooowat is my RESPONSE!
 <!--
 **KY0GEN/KY0GEN** is a ✨ _special_ ✨ repositoryrigh because its `README.md` (this file) appears on your GitHub profile.
 
